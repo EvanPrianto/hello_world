@@ -17,3 +17,4 @@ fawefawefaefafaf
 
 
 bhbjhbj
+ ini dari komputer
