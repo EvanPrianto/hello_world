@@ -1,5 +1,5 @@
 # hello_world
-just study repository
+just repository
 
 selamat pagi
 
